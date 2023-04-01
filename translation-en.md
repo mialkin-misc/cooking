@@ -4,6 +4,10 @@
 
 - **Cooking** — кулинария
 
+## D
+
+- **Deep frying** — фритюр
+
 ## K
 
 - **Kitchenware** — посуда
