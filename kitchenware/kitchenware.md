@@ -10,4 +10,5 @@
 
 ## Видео
 
-[↑ Кухонная посуда и инвентарь #2 Что должно быть на кухне](https://www.youtube.com/watch?v=Y39ife7SahQ)
+- [↑ Кухонная посуда и инвентарь #2 Что должно быть на кухне](https://www.youtube.com/watch?v=Y39ife7SahQ)
+- [↑ Сколько нужно посуды дома](https://www.youtube.com/watch?v=5c1HkhRB8ks)
